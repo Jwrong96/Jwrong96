@@ -5,6 +5,6 @@
 - 📫 How to reach me ... For any questions or feedback, reach out to jwrong96@icloud.com
 - 😄 Pronouns: ... Dude.
 - ⚡ Fun fact: ... The color of an object isn’t what it possesses, but what it reflects—revealing not what it is, but everything it denies.
-- 
+  
 Shoutout to the amazing community of developers and open-source enthusiasts who inspire us daily. ❤️
 
